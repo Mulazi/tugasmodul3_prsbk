@@ -3,4 +3,4 @@ Tugas Modul 3 Praktikum RSBK
 
 
 Mulazi - 21120117120013
-/n Afrizal Bagas Santoso - 21120117130075
+Afrizal Bagas Santoso - 21120117130075
